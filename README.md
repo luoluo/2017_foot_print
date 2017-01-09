@@ -6,3 +6,6 @@
 -2017-1-6 Sleep late last night. Go to bed now. better tomorrow  
 -2017-1-5 Late for work. Late for go home. Keep on time tomorrow.    
 -2017-1-4 Begin contribute to this repo. Slepp early and get up early.   
+-2017-1-3 ..... another day missed.     
+-2017-1-2 ..... one day missed.     
+-2017-1-1 ..... one day missed.     
