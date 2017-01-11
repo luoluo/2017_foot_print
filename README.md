@@ -1,5 +1,6 @@
 # 2017 come on!
 
+-2017-1-11 Sing a song for you. Come on!    
 -2017-1-10 I got a feeling.     
 -2017-1-09 Have a nice day. Sleep early, get up early, works fine.   
 -2017-1-08 Go out with some old friends. Toooooo tired. Read some article about ML. come on!     
