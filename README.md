@@ -1,6 +1,8 @@
 # 2017 come on!
 
--2017-1-12 Sleep late last night. reallly a depressed. Never do that again.    
+
+-2017-1-12 Complex project requires extended plans.     
+-2017-1-12 Sleep late last night. reallly a depressed. Never do that again.      
 -2017-1-11 Sing a song for you. Come on!    
 -2017-1-10 I got a feeling.     
 -2017-1-09 Have a nice day. Sleep early, get up early, works fine.   
