@@ -1,6 +1,8 @@
 # 2017 come on!
 
-Hung out on a party
+-2017-1-16 Carry on.      
+-2017-1-15 Another day missed.....          
+-2017-1-14 Hung out on a party.      
 -2017-1-13 Complex project requires extended plans.     
 -2017-1-12 Sleep late last night. reallly a depressed. Never do that again.      
 -2017-1-11 Sing a song for you. Come on!    
