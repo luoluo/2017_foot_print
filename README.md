@@ -1,5 +1,7 @@
 # 2017 come on!
 
+
+-2017-1-17 Keep reading. Reading bright helps open my mind.    
 -2017-1-16 Carry on.      
 -2017-1-15 Another day missed.....          
 -2017-1-14 Hung out on a party.      
