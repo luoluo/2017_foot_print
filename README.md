@@ -1,8 +1,8 @@
 # 2017 come on!
 
--2017-1-20 How time flys...             
--2017-1-19 Have a good mood.  Coding on!! Spring festval is on the way.                      
--2017-1-18 Reading a fantastic book by Maugham. Had a terrible dream this morning, forget about it. Need some sport maybe.         
+-2017-1-20 How time flys, super fast...                
+-2017-1-19 Have a good mood.  Coding on!! Spring festval is on the way.       
+-2017-1-18 Reading a fantastic book by Maugham. Had a terrible dream this morning, forget about it. Need some sport maybe.           
 -2017-1-17 Keep reading. Reading bright helps open my mind.    
 -2017-1-16 Carry on.      
 -2017-1-15 Another day missed.....          
